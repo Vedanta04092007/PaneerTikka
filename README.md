@@ -1,0 +1,1 @@
+The recipe of the paneer tikka is very simple but the taste of it is delicioius. we just mix paneer withall the masalas and then we fry it on pan.

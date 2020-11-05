@@ -1,0 +1,1 @@
+Take paaer and mix all the masalas given in the ingridients coloumn. Let the panner rest and then add 2 table spoons of oil. Let it rest again and after that fry it on the pan and serve it hot with some tomatoes, onions and lemon.
